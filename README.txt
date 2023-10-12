@@ -1,2 +1,2 @@
 Password is :R719
-Support Mail: speaktokhan.com
+Support Mail: typetork@gmail.com
